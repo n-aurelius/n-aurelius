@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning basic stuff
 *python *html *css *javascript *digitalmarketing
 - cause I recently graduated pre-med 2 months back so i gotta work hard. GRIT.
-- 📫 here's my email: mahnooralishahali@gmail.com
+- 📫 here's my email: ilctmtc@gmail.com
 - 😄 Pronouns: idk myself
 - ⚡ Fun fact: I'm a math ace but I can't add numbers in my mind.
 
